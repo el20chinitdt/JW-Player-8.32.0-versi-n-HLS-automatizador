@@ -1,0 +1,1 @@
+# JW-Player-8.32.0-versi-n-HLS-automatizador
